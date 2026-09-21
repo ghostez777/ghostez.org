@@ -1,0 +1,2 @@
+# ghostez.org
+school work
